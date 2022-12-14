@@ -17,7 +17,7 @@ Doraemon is a fictional character in the Japanese manga and animated series of t
 The Karate Kid is a 1984 American martial arts drama film written by Robert Mark Kamen and directed by John G. Avildsen. It is the first installment in the Karate Kid franchise, and stars Ralph Macchio, Pat Morita, Elisabeth Shue and William Zabka.[3][4] The Karate Kid follows Daniel LaRusso (Macchio), a teenager taught karate by Mr. Miyagi (Morita) to help defend himself and compete in a tournament against his bullies, one of whom is Johnny Lawrence (Zabka), the ex-boyfriend of his love interest Ali Mills (Shue).
 
 
-![SlamDunk](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.kindpng.com%2Fimgv%2FimTmxhT_sakuragi-hanamichi-photo-sakuragi7-zpsdf4d0c36-hd-png-download%2F&psig=AOvVaw07kNIGqOq5UoIQfZvVHC4B&ust=1671113551869000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCOCAtZKl-fsCFQAAAAAdAAAAABAJ)
+![SlamDunk](https://scontent.fcrk1-1.fna.fbcdn.net/v/t1.18169-9/1382275_1391530927755952_644554462_n.jpg?_nc_cat=107&ccb=1-7&_nc_sid=ba80b0&_nc_eui2=AeG8m_iLrqv85NLge59jlUS6g2Czke4Fhq6DYLOR7gWGrotbpUf3c_-5E51-CmHuoj570HZwng_Get_aVu0-qwy7&_nc_ohc=G3Pz5JeF3nEAX9bov0q&tn=xIOux-2SKSq0Kaaf&_nc_ht=scontent.fcrk1-1.fna&oh=00_AfASukRecByvXD-8CaaFmUbE3MC8ii7CXzZPNVSlobnCTQ&oe=63C1482C)
 
 **Slam Dunk**
 
